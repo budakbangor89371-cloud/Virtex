@@ -39,3 +39,8 @@ CONTOHNYA:
 mv v12.txt /sdcard
 
 ![Download Virtex](https://raw.githubusercontent.com/MR-X-junior/Virtex/master/ss.png)
+hiiiuuhhhhhggfjcvcucfuuffugfufugufudoxitxxtisditsisgxkydhdhlxhlzgl
+hydtitisdittttidtidtodotdotz 
+yspd6zssotsogdogdgodogxoyxogxpyxphchpxhpxpgxphhx
+hztfizfitsisitztistosotdyodyodyodoysyosyosyoseypes
+TOTSSSTISTSTSY https://github.com/Ditt-NoLife/virtex-1.git
